@@ -1,0 +1,4 @@
+- 👋 Hi, I’m: RandomD3v
+- 👀 I’m interested in: Develping Bots on discord
+- 🌱 I’m currently learning: Css+
+- 📫 How to reach: DM Me on discord: blitzduels#9858
